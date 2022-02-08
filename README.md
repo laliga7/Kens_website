@@ -1,1 +1,1 @@
-![Ken's_website](https://user-images.githubusercontent.com/57897264/152795021-343e6645-2ca1-4df6-9f5e-1786f6a92be7.svg)
+![mockup_ken](https://user-images.githubusercontent.com/57897264/153000231-56249044-b08b-4d30-b96c-6a19e3c2e0fe.svg)
